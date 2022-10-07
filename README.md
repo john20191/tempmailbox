@@ -22,18 +22,18 @@ Where Can i use 10 minutes mail service?
 
 You can use the service from the following websites:
 
-1 10 minute mail https://10-minutemail.com/
+1 10-minute mailbox, the fastest 5 seconds to receive emails, you can be extended to 30 minutes,60 minutes and 24 hours https://www.10-minutemail.com
 
-2 10 min email https://email10min.com/
+2 10-minute mailbox, receive mail very fast https://10-minutemail.net
 
-3 temp mail https://www.mailtemp.net/
+3 temp mail, receive mail very fast https://tempmail.ink
 
-4 10 minute mail https://10minmailnet.com/
+4 10 min email https://email10min.com/
 
-5 10 min mail https://email10min.net/
+5 10minute mailbox, the page is simple, but easy to use https://www.mailtemp.net
 
-6 ten minutes mail https://tenminutesmail.net/
+6 temp mail https://tempmails.info
 
-7 https://10-minutemail.net
+7 10 min Email https://email10min.net
 
-8 https://10-minutemail.org
+8 10 Minutes Mailbox https://tenminutesmail.net
